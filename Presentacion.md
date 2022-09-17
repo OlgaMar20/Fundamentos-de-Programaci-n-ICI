@@ -1,5 +1,5 @@
-![image](https://portal.ucol.mx/content/micrositios/188/image/Escudo2021/1_Linea/UdeC%20Abajo_Negro.png)
-# Portafolio de Ejercicios realizados en clase
+![image](https://www.ucol.mx/marco-filosofico/logos-descargables.htm)
+# Portafolio de Ejercicios Realizados en Clase
 ### Estudiante: OLGA YARELY GUTIÉRREZ MARTÍNEZ
 ### Profesor: WALTER ALEXANDER MATA LOPEZ
 ### 3ºB
