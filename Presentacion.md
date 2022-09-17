@@ -1,4 +1,4 @@
-![image](https://portal.ucol.mx/content/micrositios/188/image/Escudo2021/Dos_lineas_Izq/UdeC_2L%20izq_Blanco.png)
+![image](https://www.security-research-map.eu/files/1090.png)
 # Portafolio de Ejercicios Realizados en Clase
 ### Estudiante: OLGA YARELY GUTIÉRREZ MARTÍNEZ
 ### Profesor: WALTER ALEXANDER MATA LOPEZ
